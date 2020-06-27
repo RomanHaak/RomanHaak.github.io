@@ -18,3 +18,5 @@ kennt man ihn mittlerweile auch aus Serien, Filmen, Spielen und vielem mehr.
 
 > Mir ist noch keine Lasagne begegnet, die mir nicht geschmeckt hat
 
+<img src=https://www.thestar.com/content/dam/thestar/entertainment/2017/03/01/garfields-gender-male-none-sparks-wikipedia-edit-war/garfield.jpg/>
+
